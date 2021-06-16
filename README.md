@@ -1,0 +1,1 @@
+# LuckAndBadPrivacy-policy
